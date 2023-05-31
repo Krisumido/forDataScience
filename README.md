@@ -23,4 +23,5 @@ Assim como um caso e solução,
 Finanças, Comunicação e alguns Negócios podem não ter lentes.
 
 Talvez me encontrem, além daqui
-**No Linkedin:** Kristhyan Rodrigues 
+
+* **No Linkedin:** Kristhyan Rodrigues 
