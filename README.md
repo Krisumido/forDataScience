@@ -26,6 +26,7 @@ Talvez me encontrem, além daqui
 
 * **No Linkedin:** Kristhyan Rodrigues
 
-**Portfólio**
+---
+## Portfólio
 
 * **ATENÇÃO... Temos uma pesquisa**: https://bit.ly/3PIC0BZ
