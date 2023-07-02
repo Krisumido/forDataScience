@@ -24,4 +24,8 @@ Finanças, Comunicação e alguns Negócios podem não ter lentes.
 
 Talvez me encontrem, além daqui
 
-* **No Linkedin:** Kristhyan Rodrigues 
+* **No Linkedin:** Kristhyan Rodrigues
+
+**Portfólio**
+
+* **ATENÇÃO... Temos uma pesquisa**: https://bit.ly/3PIC0BZ
