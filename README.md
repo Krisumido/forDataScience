@@ -30,4 +30,4 @@ Talvez me encontrem, além daqui
 ## Portfólio
 
 * **ATENÇÃO... Temos uma pesquisa**: https://bit.ly/3PMgLiV
-* **Análise para Pagamentos**: 
+* **Análise para Pagamentos**: https://bit.ly/44HLsdq
