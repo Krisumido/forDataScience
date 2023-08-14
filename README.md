@@ -29,5 +29,8 @@ Talvez me encontrem, além daqui
 ---
 ## Portfólio
 
-* **ATENÇÃO... Temos uma pesquisa**: https://bit.ly/3PMgLiV
+* **ATENÇÃO... Temos uma pesquisa**: https://bit.ly/456JQKI
+
 * **Análise para Pagamentos**: https://bit.ly/44HLsdq
+
+* **O Desafio de Empreender**: from In
