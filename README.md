@@ -34,3 +34,4 @@ Talvez me encontrem, além daqui
 * **Análise para Pagamentos**: https://bit.ly/44HLsdq
 
 * **O Desafio de Empreender**: https://bit.ly/3OW6U9a
+* **Poupança. Ter ou Não Ter ?!**: https://bit.ly/3steIGI
